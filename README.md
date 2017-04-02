@@ -8,4 +8,4 @@ The second review is about the movie Sholay, an all time classic, directed by Ra
 Pyaasa movie review :
 A talented but indigent poet Vijay struggles for love and recognition in this selfish world.
 
-We have selected these two movies from the list provided to us.
+We have selected these three movies from the list provided to us.
